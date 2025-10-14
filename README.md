@@ -1,0 +1,2 @@
+# zakicoin
+ 
